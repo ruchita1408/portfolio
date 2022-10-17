@@ -13,7 +13,8 @@ Work samples video--https://user-images.githubusercontent.com/89216638/190493842
 
 ![portfolio ss4](https://user-images.githubusercontent.com/89216638/190495466-af6f39b1-7cab-4d62-b9d1-1f6193642876.jpeg)
 
-![portfolio ss5](https://user-images.githubusercontent.com/89216638/190495490-c5febd37-a8f1-4d3a-9dbe-8392e61c474b.jpeg)
+![cert](https://user-images.githubusercontent.com/89216638/196195353-34b9526f-f640-4fde-8150-3a8a6779d0f7.jpeg)
+
 
 ![portfolio ss6](https://user-images.githubusercontent.com/89216638/190495510-87e9ab33-cd25-49d7-9e34-e5315414843f.jpeg)
 
